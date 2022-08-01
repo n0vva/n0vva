@@ -1,4 +1,4 @@
-Hello, i am novva I like to code and more.
+Hello, we are n0vva we like to code and more.
 
-Contact me on discord novva#0567 or insta fucknovva.
+Contact the owner on discord novva#0567 or insta fucknovva.
 
